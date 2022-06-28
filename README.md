@@ -12,3 +12,6 @@ You can click the Preview link to take a look at your changes.
 --->https://www.reddit.com/u/Green-Illustrator-28/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
 --->https://instagram.com/bling_board?r=nametag
 --->📞+919658174000
+https://www.linkedin.com/in/varinder-singh-45154b200/
+
+0x282e67eeb28491a5737880083ad185fb0b87a234     
